@@ -1,4 +1,4 @@
-# 
+# best bot de negociação Binance Futures ferramentas é o melhor bot de negociação Binance Futures ferramentas com suporte a webhook e scalping. Seguro, confiável e otimizado para
 
 
 
